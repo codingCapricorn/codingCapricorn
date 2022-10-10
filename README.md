@@ -1,5 +1,5 @@
-- 👋 Hi, I’m a 🦆
-- 👀 I use he/him pronouns !! 
+- 👋 Hello World !!, I’m a 🦆
+- 👀 I use he/him as pronouns !! 
 - 📕 I’m currently reading Variety by Colleen Hoover ...
 
 - 📫 How to reach me ... figuring out . 
