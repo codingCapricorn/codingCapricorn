@@ -1,6 +1,6 @@
 - 👋 Hi, I’m a 🦆
 - 👀 I use he/him pronouns !! 
-- 🌱 I’m currently reading Variety by Colleen Hoover ...
+- 📕 I’m currently reading Variety by Colleen Hoover ...
 
 - 📫 How to reach me ... figuring out . 
 
