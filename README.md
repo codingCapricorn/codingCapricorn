@@ -1,8 +1,8 @@
 - 👋 Hello World !!, I’m a 🦆
 - 👀 I use he/him as pronouns !! 
-- 📕 I’m currently reading Variety by Colleen Hoover ...
+- 📕 I’m currently reading Funny Story by Emily Henry ...
 
-- 📫 How to reach me ... figuring out . 
+- 📫 How to reach me ... still figuring out . 
 
 
 <!---
