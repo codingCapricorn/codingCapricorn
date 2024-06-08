@@ -1,4 +1,4 @@
-- 👋 Hello World !!, I’m a Cardiff University Student !!
+- 👋 Hello World !!, I’m a tech !!
 - 👀 I use he/him as pronouns !! 
 - 📕 Currently reading Funny Story by Emily Henry ...
 
