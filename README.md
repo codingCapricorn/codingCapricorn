@@ -1,4 +1,4 @@
-- 👋 Hello World !!, I’m a tech enthusiast!!
+- 👋 Hello World !!, I’m a tech enthusiast !!
 - 👀 I use he/him as pronouns !! 
 - 📕 Currently reading Funny Story by Emily Henry ...
 
