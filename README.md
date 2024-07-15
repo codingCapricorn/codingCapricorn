@@ -1,6 +1,6 @@
 - 👋 Hello World !!, I’m a tech enthusiast !!
 - 👀 I use he/him as pronouns !! 
-- 📕 Currently reading Funny Story by Emily Henry ...
+- 📕 Currently reading Funny Story by Emily Henry ..
 
 - 📫 How to reach me ? ... still figuring out ..
 
