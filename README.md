@@ -2,7 +2,7 @@
 - 👀 I use he/him as pronouns !! 
 - 📕 Currently reading Funny Story by Emily Henry ..
 
-- 📫 How to reach me ? ... still figuring out ..
+- 📫 How to reach me ? ... still figuring out ... 
 
 
 <!---
