@@ -2,7 +2,7 @@
 
 
 
-- 📫 How to reach me ? ... still figuring out .
+- 📫 How to reach me ? ... still figuring out 
 
 
 <!---
